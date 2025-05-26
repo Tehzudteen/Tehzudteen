@@ -8,7 +8,7 @@ Hi I'm teh I want to develop all anything to change the world but now me write c
 
 * 🌍  I'm based in Thailand
 * 🖥️  See my portfolio at [website🌍](http://portfolio-teh.onrender.com)
-* ✉️  You can contact me at [luckyteh0083@gmail.com](mailto:luckyteh7777@gmail.com)
+* ✉️  You can contact me at [luckyteh7777@gmail.com](mailto:luckyteh7777@gmail.com)
 * 🧠  I'm learning lynx
 
 ### Skills
